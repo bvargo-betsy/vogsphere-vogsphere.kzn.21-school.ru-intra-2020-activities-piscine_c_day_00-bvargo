@@ -1,0 +1,1 @@
+# vogsphere-vogsphere.kzn.21-school.ru-intra-2020-activities-piscine_c_day_00-bvargo
